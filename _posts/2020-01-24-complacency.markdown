@@ -1,7 +1,7 @@
 ---
 layout: post
-title:      "complacency"
-date:       2020-01-24 22:24:35 +0000
+title:      "Complacency"
+date:       2020-01-24 17:24:36 -0500
 permalink:  complacency
 ---
 
