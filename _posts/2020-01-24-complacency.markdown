@@ -5,7 +5,9 @@ date:       2020-01-24 17:24:36 -0500
 permalink:  complacency
 ---
 
-Complacency. I had simply become complacent in my life's journey. I held a job for 10+ years, and I couldn't see myself developing within the company any further. So what was I to do?
+Word of the Year: Complacency. 
+
+I had simply become complacent in my life's journey. I held a job for 10+ years, and I couldn't see myself developing within the company any further. So what was I to do?
 
 I had been to college, and picked up a couple of "dust collecting" degrees, and I had tenure at a huge company with no chance of moving forward professionally in the forseeable future. Granted, I was making decent money- but I was working 12+ hour daily shifts, with no ackknowledgement, with absolutely no work/life balance, and with no future.
 
