@@ -9,7 +9,7 @@ Word of the Year: Complacency.
 
 I had simply become complacent in my life's journey. I held a job for 10+ years, and I couldn't see myself developing within the company any further. So what was I to do?
 
-I had been to college, and picked up a couple of "dust collecting" degrees, and I had tenure at a huge company with no chance of moving forward professionally in the forseeable future. Granted, I was making decent money- but I was working 12+ hour daily shifts, with no ackknowledgement, with absolutely no work/life balance, and with no future.
+I had been to college, and picked up a couple of "dust collecting" degrees, and I had tenure at a huge company with no chance of moving forward professionally in the forseeable future. Granted, I was making decent money- but I was working 12+ hour daily shifts, with no acknowledgement, with absolutely no work/life balance, and with no future.
 
 I was so unhappy and stressed that my other half insisted that I quit my job, and take time to find what I really wanted to do in life. So after saving, and stressing for a few months- I FINALLY DID IT! I QUIT MY JOB OF TEN YEARS... and I... I had no earthly idea of what was next for me.... Welllll.... CRAP.
 
